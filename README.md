@@ -1,2 +1,0 @@
-# walled-garden
-གཡའ་དྲེད
